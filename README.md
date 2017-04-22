@@ -65,6 +65,18 @@
 
 仙路珠宝 http://www.sinojewel.com/
 
+深本美绿格 http://www.meilvge.com/
+
+迅捷兴 http://www.jxpcb.com/
+
+博群新材料 http://jp.booqun.com/
+
+槟果文化传媒 http://www.bingosz.com/
+
+童安娜儿童用品 http://www.sztonganna.com/
+
+铂胜光电 http://www.bersn.com/
+
 
 
 
