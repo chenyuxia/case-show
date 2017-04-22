@@ -25,3 +25,17 @@
 
 恒辉印刷 http://www.hhys.cn/
 
+拓璞设计家具 http://www.topjiaju.cn/
+
+东方韵礼品 http://www.cndongfangyun.com/
+
+微雅丝护发 http://www.fazhih.com/
+
+安普悦电子烟 http://www.apoloe.cn/
+
+中杨数控 http://www.z-ycnc.com/
+
+拓尼尔蓝牙耳机 http://guantai.ctmon.cn/
+
+赛科易昊 http://www.successmold.com.cn/
+
