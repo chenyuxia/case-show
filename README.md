@@ -39,3 +39,50 @@
 
 赛科易昊 http://www.successmold.com.cn/
 
+腾博电子 http://www.tenbo.cn/
+
+长鑫盛通 http://www.uncallcc.com/
+
+维民电力 http://www.gdweimin.com/
+
+耀嵘科技 http://www.86yr.com/
+
+顺祥鑫LED灯 http://www.sxxkjsz.com/
+
+海光电子 http://www.cntransformer.cn/
+
+北电丰崎 http://cn.toyozaki.com/
+
+鑫田威尔 http://www.xtweled.com/
+
+金城卫浴 http://www.kgtspa.com/
+
+多尔赛特门业 http://www.gdoor.cn/
+
+罗曼圣居 http://lmsj.ctmon.com.cn/
+
+虹望奈喜美 http://www.nicemay.com/
+
+仙路珠宝 http://www.sinojewel.com/
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
