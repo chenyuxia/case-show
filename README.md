@@ -77,7 +77,11 @@
 
 铂胜光电 http://www.bersn.com/
 
+三鑫维科技 http://www.sxwled.com/
 
+永恒晟光电 http://www.yhs66.com/
+
+帕尔多斯 http://www.paerduosi.com/
 
 
 
