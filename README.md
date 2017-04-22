@@ -19,4 +19,9 @@
 
 超创鑫移动电源  http://www.ccxkj.com/
 
-恒士健电子烟  http://www.hengshijian.com/
+恒士健电子烟  http://www.hengshijian.com/
+
+君辉生物 http://www.szjhsw.com/
+
+恒辉印刷 http://www.hhys.cn/
+
